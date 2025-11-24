@@ -83,7 +83,7 @@ https://github.com/abboudhettini03/ai-study-assistant
 
 ## 📫 Contact Me
 📧 Email: **abboudhettini@gmail.com**  
-💼 LinkedIn: *()*  
+💼 LinkedIn: (https://www.linkedin.com/in/abdulrahman-hettini-152b87228/)
 🌍 Location: Jordan 🇯🇴  
 
 ---
